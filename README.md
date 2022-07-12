@@ -3,6 +3,6 @@
 
 😌 KENDİ ÇABALARIMLA BİR DİL ÖĞRENMEYE ÇALIŞIYORUM
 
-🔍 YARDIM ETMEK İSTERSENİZ [TG HESAB](https://t.me/onlinewof)IMA ULAŞABİLİRSİNİZ
+🔍 İLETİŞİM İÇİN [TG HESAB](https://t.me/onlinewof)IMA ULAŞABİLİRSİNİZ
 
 🥳 HE UNUTMADAN DİYEYİM BENİ TAKİP ETMEYİ UNUTMA:)
